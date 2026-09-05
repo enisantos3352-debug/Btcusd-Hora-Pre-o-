@@ -1,0 +1,1 @@
+# Btcusd-Hora-Pre-o-
